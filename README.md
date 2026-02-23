@@ -1,3 +1,3 @@
 # hai-test-github
 Mô tả về github respository
-ghjjkjo;  uhiujokopk
+mô tả kỹ lần 2
